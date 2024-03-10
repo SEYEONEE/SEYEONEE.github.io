@@ -1,1 +1,0 @@
-# SEYEONEE.github.io
